@@ -8,6 +8,9 @@
 
 # TAMBAH DATA
 ![SS 2](https://user-images.githubusercontent.com/81576195/126423647-10e45629-eb4f-4c25-81f2-7306f59e96a0.jpg)
+![SS 3](https://user-images.githubusercontent.com/81576195/126424806-6900b0ce-b987-4fa5-9c2c-f68985cd5ede.jpg)
+![SS 4](https://user-images.githubusercontent.com/81576195/126424812-a37f12af-6c2b-437d-9da5-6f439d79f65c.jpg)
+
 
 
 
